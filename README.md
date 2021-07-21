@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vipulraj2k@gmail.com**
 
-- 😄 Pronouns **He/him/his**
+- 😄 Pronouns **He/him**
 
 - ⚡ Fun fact **I love sleeping all day**
 
